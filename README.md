@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Fabiana Charlyene 😁
+## Bem-vindo(a) ao perfil de Fabiana Charlyene 😉
 
  <div>
    <a href="https://github.com/fabianacharlyene">
